@@ -10,7 +10,7 @@
 
   **꩜** _Bom, usarei esse espaço para o compartilhamento de **ideias** e **projetos** feitos para **VOCÊ**!!!ֶָ֢_
 
-  ## Amor, você pode meus projetos feitos para você por aqui, pelo padlet ou pelo drive🍰ྀི
+  ## Amor, você pode ver meus projetos feitos para você por aqui, pelo padlet ou pelo drive🍰ྀི
 
   
 
