@@ -17,6 +17,6 @@
 
  ## _**౨ৎ⋆˚｡⋆** E é isso, espero que goste dos próximos repertórios feitos para você!! **𓍢ִ໋🌷͙֒˚**_
 
- src= <img width="498" height="281" alt="17792300342468149508057922110384" src="https://github.com/user-attachments/assets/091af7d0-3023-4a81-8090-4ad55494b564" />
+ <img width="498" height="281" alt="17792300342468149508057922110384" src="https://github.com/user-attachments/assets/091af7d0-3023-4a81-8090-4ad55494b564" />
 
 
