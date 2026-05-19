@@ -15,7 +15,7 @@
   
 
 
- ## _**౨ৎ⋆˚｡⋆** E é isso, espero que goste dos próximos repertórios feitos para você!! EU TE AMOOOO!!!**𓍢ִ໋🌷͙֒˚**_
+ ## _**౨ৎ⋆˚｡⋆** E é isso, espero que goste dos próximos repertórios feitos para você!! EU TE AMOOOO, MEU GATINHOOOO!!!**𓍢ִ໋🌷͙֒˚**_
 
  <img width="498" height="281" alt="17792300342468149508057922110384" src="https://github.com/user-attachments/assets/091af7d0-3023-4a81-8090-4ad55494b564" />
 
